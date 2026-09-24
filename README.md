@@ -13,7 +13,7 @@
 
 **EN** — Independent developer turning original ideas into games, applications, web tools, Linux projects and AI-powered experiences.
 
-📍 **United States** · ✉️ **fraudykindle@gmail.com**
+📍 **United States** ·
 
 ---
 
